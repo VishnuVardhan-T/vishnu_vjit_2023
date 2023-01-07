@@ -1,1 +1,1 @@
-# vishnu_vjit_2023
+# VJIT2023
